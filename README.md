@@ -1,0 +1,1 @@
+# corvette_adv_prog_arailym_ulykbek
